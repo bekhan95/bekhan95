@@ -1,1 +1,1 @@
-Web3 enthousiat, nuff said.
+Web3 enthusiast, nuff said.
